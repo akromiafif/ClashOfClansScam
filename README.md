@@ -1,0 +1,2 @@
+# ClashOfClansScam
+Scampage ClashOfClans
